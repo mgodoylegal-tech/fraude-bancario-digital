@@ -128,4 +128,4 @@ La Comunicación BCRA "A" 7724 establece estándares mínimos claros. Los bancos
 
 *Matías Godoy — Abogado*  
 *Fraude Bancario Digital · Compliance en Ciberseguridad*  
-*Buenos Aires, Argentina*
+*Ciudad Autónoma de Buenos Aires, Argentina*
